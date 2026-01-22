@@ -36,3 +36,5 @@ The Wrathful and the Sullen
   Worms of the Earth / Psykick Psyrgery: Abhvan
 	
   https://ishnigarrabrecordings.bandcamp.com/album/abhvan
+
+Worms of the Earth • Akhkharu • Apollon 23 • The Wrathful and the Sullen • Annuna Ki • Psykick Psyrgery
